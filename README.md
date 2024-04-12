@@ -1,6 +1,6 @@
 # Tannel
 
-最新地址：[中继网络](https://tzdaohang.com/sites/362.html)
+最新地址：[中继网络](https://tannel.xn--6kro9vzxa373b.com/auth/register?code=yLn6)
 
 ## 简介
 
